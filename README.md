@@ -1,0 +1,1 @@
+E-commerce graphic designer, focusing on automotive product competitions during employment. Skilled at improving conversion rates through visual logic, and also capable of product photography and AIGC-assisted image creation.
